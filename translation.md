@@ -119,3 +119,36 @@ Water Margin is one of the four classical novels in Chinese literature. The nove
 《三国演义》写于14世纪，是中国著名的历史小说。这部文学作品以三国时期的历史为基础，描写了从二世纪下半叶到三世纪下半叶魏、蜀、吴之间的战争。小说描写了近千个人物和无数的历史事件。虽然这些人物和事件大多是基于真实的历史，但它们都不同程度地被浪漫化和戏剧化了。《三国演义》是一部公认的文学巨著。自出版以来，这部小说吸引了一代又一代的读者，对中国文化产生了广泛而持久的影响。
 
 Written in the fourteenth century, The Romance of the Three Kingdoms is a well-known historical novel in China. This literary work, which is based on the history of the Three Kingdoms period, describes the war between Wei, Shu and Wu from the second half of the second century to the second half of the third century. The novel depicts nearly a thousand characters and countless historical events. Most of these personalities and events are based on the real history, but they are romanticized and dramatized in different degrees. The Romance of the Three Kingdoms is recognized as a literary masterpiece. Since its publication, the novel has attracted amounts of readers from generations to generation, and has a widespread and enduring impact on Chinese culture.
+
+# 2019-12
+### 1.梅花
+梅花(plum blossom)位居中国十大名花之首，源于中国南方，已有三千多年的栽培和种植历史。隆冬时节，五颜六色的梅花不畏严寒，迎着风雪傲然绽放。在中国传统文化中，梅花象征着坚强、纯洁、高雅，激励人们不畏艰难、砥砺前行。自古以来，许多诗人和画家从梅花中获取灵感，创作了无数不朽的作品。普通大众也都喜爱梅花，春节期间常用于家庭装饰。南京市已将梅花定为市花，每年举办梅花节，成千上万的人冒着严寒到梅花山踏雪赏梅。
+
+Plum blossoms, which originate in south China, tops the most famous flowers of China and has a planting history of more than 3000 years. In mid-winter, colorful plum flowers blossom boldly against the cold. In traditional Chinese culture, plum blossom, which symbolizes toughness, purity and grace, motivates a large body of individuals to move on regardless of the hardship. Many poets and painters gained inspiration from the flower and created countless immortal works since ancient times. The common people also love plum blossom, and often use them to decorate their home during the Spring Festival. Nanjing City has designed plum blossoms as the city flower and holds the flower festival every year. Thousands of people will visit Meihua Mountain to admire the plum blossm in snow despite of coldness.
+
+### 2.荷花
+荷花是中国的名花之一，深受人们喜爱。中国许多地方的湖泊和池塘都适宜荷花生长。荷花色彩鲜艳，夏日清晨绽放，夜晚闭合，花期长达两三个月，吸引来自各地的游客前往观赏。荷花具有多种功能，既能绿化水面，又能美化庭园，还可净化水质、减少污染、改善环境。荷花迎骄阳而不惧，出污泥而不染，象征纯洁、高雅，常来比喻人的高尚品德，历来是诗人画家创作的重要题材。荷花盛开的地方也是许多摄影爱好者经常光顾之地。
+
+Lotus is one of the most famous flowers in China and is deeply loved by people. The lakes and ponds in many places of China are fit for lotus to grow. Lotus, which features bright color, blossoms in the summer morning and closes in the evening with a long flowering phase of two to three months, attracts tourists all over the country to appreciate it. Moreover, lotus has multiple functions. It can not only make water surface green and beautify courtyards but also purify water, reduce pollution and imorove environment. Due to its characters of not fearing the blazing sun and keeping clean in the dirty soil, lotus symbolizes purity and elegance. It si often used to represent people's noble virtues so that it has become significant themes for poets and painters throughout the Chinese history. Meanwhile, the places where lotus blooms always attracts many photographers to take photos.
+
+### 3.牡丹
+牡丹花色艳丽，形象高雅，象征着和平与繁荣，因而在中国被称为“花中之王”。中国许多地方都培育和种植牡丹。千百年来，创造了许多诗歌和绘画赞美牡丹。唐代时期，牡丹在皇家园林普遍种植并被誉为国花，因而特别风行。十世纪时，洛阳古城成为牡丹栽培中心，而且这一地位一直保持到今天。现在成千上万的国内游客蜂拥到洛阳参加一年一度的牡丹节，欣赏洛阳牡丹的独特之美，同时探索九朝古都的历史。
+
+Peony, which features bright color and graceful shape, symbolizes peace and prosperity，earning it the title of the "king of flowers". Peonies are cultivated and grown in many places of China. For thousands of years, a great number of poems and paintings have been produced to praise the flower. In the Tang Dynasty, peonies were planted so widely in the royal gardens as "the national flower" that they enjoyed great popularity across the country. In the 10th century, the ancient city of Luoyang became the center of peony planting, and has remained since then. Nowadays, hundreds of thousands of domestic tourists flock in Luoyang for the annual peony festival, where they can both appreciate the unique beauty of the flowers and explore the history of the city which is known as the capital of nine dynasties.
+
+# 2019-06
+
+### 1.学汉语
+随着中国经济的蓬勃发展，学汉语的人数迅速增加，使汉语成了世界上人们最爱学的语言之一。近年来，中国大学在国际上的排名也有了明显的提高。由于中国教育的巨大进步，中国成为最受海外学生欢迎的留学目的地之一就不足为奇了。2015年，近40万国际学生蜂拥来到中国市场。他们学习的科目不再限于中国语言和文化，而包括科学与工程。在全球教育市场上，美国和英国仍占主导地位，但中国正在迅速赶上。
+
+With China's booming economy, the number of people learning Chinese is growing rapidly. It makes Chinese become one of the favorite languages that people would like to learn. Recently, Chinese universities have significantly risen in world universiy rankings. Since the significant progress made in Chinese education, it is no wonder that China has been one of the most favored destinations for overseas students. In 2015, nearly 400,000 international students flocked to Chinese market. Not confined to Chinese language and culture, but also choose subjects such as science and engineering. Although the global market is still dominated by the US and the UK, China is striving to catch up.
+
+### 2.方言
+中国幅员辽阔，人口众多，很多地方人们都说自己的方言。方言在发音上差别最大，词汇和语法差别较小。有些方言，特别是北方和南方的方言，差异很大，以至于说不同方言的人常常很难听懂彼此的讲话。方言被认为是当地文化的一个组成部分，但近年来能说方言的人数不断减少。为了鼓励人们更多说本地方言，一些地方政府已经采取措施，如在学校开设方言课，在广播和电视上播放方言节目，以期保存本地的文化遗产。
+
+China is a vast country with a large population, and in many places perople speak their own dialects. Dialects differ most in pronunciation, but less in vocabulary and grammer. Some dialects, especially those from the north and south, are so different that speakers of different dialects often have trouble understanding each other. Dialects are considered an integral part of local culture, but the number of people who can speak them has been decreasing in recent years. In order to encourage people to speak more local dialects, some local governments have adopted approached, such as opening dialect classes in schools and broadcasting dialect programs on radio and television in order to preserve local cultural heritage.
+
+### 3.成语
+成语是汉语中的一种独特的表达方式，大多由四个汉字组成。它们高度简练且形式固定，但通常能形象地表达深刻的含义。成语大多来源于中国古代的文学作品，通常与某些神话、传说或历史事件有关。如果不知道某个成语的出处，就很难理解其确切含义。因为，学习成语有助于人们更好地理解中国传统文化。成语在日常会话和文学创作中广泛使用。恰当使用成语可以使一个人的语言更具表现力，交流更有效。
+
+Chinese idiom is a unique way of expression in Chinese, mostly compressed of four Chinese characters. Although highly concise and fixed in form, they usually entail profound meanings. Most idioms stem from ancient Chinese literature and are usually related with certain myths, legends or historical events. It is difficult to understand its exact meaning with little knowledge of its origin as learning idioms helps people better understand Chinese traditional culture. Idioms are widely used in daily conversation and literary creation. Proper use of idioms can make a person's language more expressive and help to deliver a more effective communication.
